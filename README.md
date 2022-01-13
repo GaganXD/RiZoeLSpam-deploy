@@ -13,8 +13,8 @@
 
 
 # Support & Updates
-* [Channel](https://t.me/RiZoeLX)
-* [Support Group](https://t.me/DNHxHELL)
+* [Channel](https://t.me/lofilifexd)
+* [Support Group](https://t.me/+aJXwoBwg18MyMTdl)
 
 # Credits
 * [RiZoeL Creator](https://github.com/MrRizoel)
